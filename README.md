@@ -1,1 +1,0 @@
-# gszalec_virtualtour
